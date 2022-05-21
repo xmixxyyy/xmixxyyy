@@ -1,0 +1,3 @@
+- 👋 Hi, I’m xmixxyyy
+- 👀 I’m interested in Games & blockchain
+- 🌱 I’m currently learning code
